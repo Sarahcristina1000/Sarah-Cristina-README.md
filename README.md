@@ -6,3 +6,18 @@ AMOOOO  PROGRAMADORES  COMPETENTES!!!
  
  "ELE CAUSA OQUE VEM A SER"
 ![GIF GITHUB](https://user-images.githubusercontent.com/96752968/152599261-c1e6081b-5a48-4b53-961a-cc8d9b66b953.gif)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+LUTE SEMPRE  A VITÓRIA VIRÁ!
