@@ -5,3 +5,4 @@ AMOOOO  PROGRAMADORES  COMPETENTES!!![GIF GITHUB](https://user-images.githubuser
 "COMIGO  NÃO ESTÁ UM  BRAÇO DE  CARNE...MAS JEOVÁ DOS EXERCITOS!!!!
  
  
+![GIF GITHUB](https://user-images.githubusercontent.com/96752968/152599261-c1e6081b-5a48-4b53-961a-cc8d9b66b953.gif)
