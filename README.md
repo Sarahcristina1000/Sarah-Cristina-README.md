@@ -21,4 +21,6 @@ AMOOOO  PROGRAMADORES  COMPETENTES!!!
 
 
 LUTE SEMPRE  A VITÓRIA VIRÁ!
-![GITHUB2](https://user-images.githubusercontent.com/96752968/152623269-4d3bf2fa-ea14-4b9b-a6f1-ab7f18077de2.gif)
+![MomentCam_20220204223255_06201005601280](https://user-images.githubusercontent.com/96752968/152624026-a0e50d33-6957-483c-92fe-250c1f8497e9.gif)
+
+Em
