@@ -27,5 +27,12 @@ FOI ELE QUE CRIOU O CÓDIGO DE TUDO QUE EXISTE....
 
 
 LUTE SEMPRE  A VITÓRIA VIRÁ!
+
+../\_/\
+.( *;* )
+..Q:::Q
+.(^^)(^^)
+##########
+
 ![GITHUB2](https://user-images.githubusercontent.com/96752968/152624532-a90481a3-5d2c-4175-ad6d-37d1a7aa8ff9.gif)
 !![IMG_20220129_211956_682](https://user-images.githubusercontent.com/96752968/152838797-7e0ccffd-a973-4b4e-9464-b67c82cec445.jpg)
